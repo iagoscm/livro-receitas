@@ -1,4 +1,4 @@
-# Pavê de Chocolate com Biscoito Maizena 🐔
+# Pavê de Chocolate com Biscoito Maizena 🍫
   
   ## Ingredientes\
   
